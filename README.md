@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Phanikumar Kurumaddhali
+# 👋 Hi, I'm Phanikumarr Kurumaddhali
 
 🌟 **Mechanical Engineer | Quality & Project Manager | Lifelong Learner**
 
